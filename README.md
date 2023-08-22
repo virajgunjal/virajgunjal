@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **DSA from Striver's DSA sheet**
 
-- 📫 How to reach me **virajmgunjal@gmail.com**
+- 📫 How to reach me **virajgunjal21853@gmail.com**
 
 - ⚡ Fun fact **I can switch to any language in a day**
 
