@@ -12,8 +12,7 @@
 - 📫 How to reach me **virajgunjal21853@gmail.com**
 
 - ⚡ Fun fact **I can switch to any language in a day**
-  
-- To see my Portfolio <a href="https://viraj-gunjal.onrender.com>click here</a>
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
